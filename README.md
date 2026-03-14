@@ -1,2 +1,2 @@
 # urban-giggle
-to giigle like urban
+to giggle like urban
